@@ -1,1 +1,1 @@
-# MAGOK
+# Korea
